@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Josh
+- 👀 I'm always focus and learning new technologies.
+- 
